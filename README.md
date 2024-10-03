@@ -1,4 +1,4 @@
-<spam style="color:#000; font-family: 'Times New Roman'; font-size: 2em;"># *Joe Sanders*</span>
+<span style="color:#000; font-family: 'Times New Roman'; font-size: 2em;">Joe Sanders</span>
 
 UMN Undergrad pursuing a Bachelor of Science in Archicture 
 
