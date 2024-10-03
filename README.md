@@ -18,7 +18,7 @@ Graduating Spring 2026
 
 **ARCH 4511 Materials and Methods final presentation**
 
-[ARCH4511final](https://github.com/user-attachments/files/17250400/assignment.3.board1-01-combined.pdf)
+[ARCH4511 Final](https://github.com/user-attachments/files/17250400/assignment.3.board1-01-combined.pdf)
 
 **ARCH 3281 Studio I: Material portfolio**
 
