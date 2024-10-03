@@ -4,7 +4,7 @@ UMN Undergrad pursuing a Bachelor of Science in Archicture
 
 Graduating Spring 2026
 
-Resume
+Resume[Joseph-Sanders (2).pdf](https://github.com/user-attachments/files/17250385/Joseph-Sanders.2.pdf)
 
 ARCH 1281 Design Fundamentals 1 portfolio
 
