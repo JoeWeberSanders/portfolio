@@ -14,6 +14,12 @@ ARCH 1281 Design Fundamentals 1 portfolio
 
 ARCH 2281 Design Fundamentals 2 portfolio
 
+[Sanders_ARCH3281_FinalPortfolio (1)-compressed.pdf](https://github.com/user-attachments/files/17250398/Sanders_ARCH3281_FinalPortfolio.1.-compressed.pdf)
+
 ARCH 4511 Materials and Methods final presentation
 
+[assignment 3 board1-01-combined.pdf](https://github.com/user-attachments/files/17250400/assignment.3.board1-01-combined.pdf)
+
 ARCH 3281 Studio I: Material portfolio
+
+[Sanders_ARCH3281_FinalPortfolio (1)-compressed.pdf](https://github.com/user-attachments/files/17250401/Sanders_ARCH3281_FinalPortfolio.1.-compressed.pdf)
